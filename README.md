@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @L-Chevy-12.
+- 👋 Hi, I’m @L-Chevy.
 - 👀 I’m interested in games.
 - 🌱 I’m currently learning mathematics and coding.
 - 💞️ I’m looking to collaborate on (N/A).
